@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ashibhek
+- 👀 I’m interested in learning new things.
+- 🌱 I’m currently learning the things that I dont know.
+- 😄 Pronouns: he/him
